@@ -1,1 +1,0 @@
-# demo-pest-guard-zimbabwe
